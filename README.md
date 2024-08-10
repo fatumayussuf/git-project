@@ -1,2 +1,10 @@
 # git-project
 ![step 1](https://github.com/user-attachments/assets/70bbbe0f-bef0-47d3-ba11-9d6f47049552)
+![step 2](https://github.com/user-attachments/assets/f240b69b-46ab-4544-ad78-adc04e20141a)
+![step 3](https://github.com/user-attachments/assets/e52c8302-d710-4826-a556-e25d38a07fbe)
+![4 and 5 step](https://github.com/user-attachments/assets/a6445cdc-98bb-4e1f-a5c0-fb49a3d23598)
+![step 6](https://github.com/user-attachments/assets/b81971b4-a0ec-4f4b-a20b-a4c759b4fe05)
+![step 7](https://github.com/user-attachments/assets/6783035c-38b3-4753-bb01-16b841bbc1a1)
+![step 8](https://github.com/user-attachments/assets/92cbdf40-21a5-4eeb-ae7d-d3742ef3f5ec)
+![step 9](https://github.com/user-attachments/assets/831433b9-85a7-466d-b2f8-833bff2db18b)
+![step 10](https://github.com/user-attachments/assets/0f87f5ff-764a-4553-9b9d-205204a42f28)
